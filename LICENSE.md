@@ -1,4 +1,4 @@
-# 
+# Open Source Kaspersky Total Security scripts for Mac OS | Top Kaspersky Total Security scripts for PC Windows. Featuring real-time monitoring and quarantine management — optimized for maximum performance on every platform.
 
 
 
